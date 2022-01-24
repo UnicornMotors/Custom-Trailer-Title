@@ -1,0 +1,2 @@
+# Custom-Trailer-Title
+# how to title a homemade trailer: [sch:](https://www.google.com/search?q=how+to+title+a+homemade+trailer) # by state: [Mississippi](https://www.google.com/search?q=how+to+title+a+homemade+trailer+mississippi) , [Form:](https://co.jackson.ms.us/DocumentCenter/View/430/Application-for-Homemade-Trailer-VIN-78018-PDF#:~:text=Upon%20approval%20of%20application%2C%20a,for%20a%20certificate%20of%20title.) , [MD](https://mva.maryland.gov/about-mva/Pages/info/27300/27300-31T.aspx) , [guide: WikiHow](https://www.wikihow.com/Register-a-Homemade-Trailer)
